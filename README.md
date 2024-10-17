@@ -35,7 +35,7 @@
 
 ### 📫 Как связаться со мной:
 - Email: odudenkodmitriy@gmail.com
-- LinkedIn: [https://www.linkedin.com/in/dmitry-odudenko-a1a82a302?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app](https://linkedin.com/)
+- LinkedIn: [Odudenko Dmitry](https://www.linkedin.com/in/dmitry-odudenko-a1a82a302?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 
 ---
 
