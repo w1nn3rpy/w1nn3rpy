@@ -37,7 +37,7 @@
 
 [![Email Badge](https://img.shields.io/badge/-Email-D14836?style=flat&logo=gmail&logoColor=white)](mailto:odudenkodmitriy@gmail.com)
 [![Telegram Badge](https://img.shields.io/badge/-Telegram-1ca0f1?style=flat&logo=telegram&logoColor=white)](https://t.me/w1nn3r1337)
-[![LinkedIn Badge](https://img.shields.io/badge/-LinkedIn-0077B5?style=flat&logo=linkedin&logoColor=white)]([https://linkedin.com/in/ТВОЙ_LINKEDIN](https://www.linkedin.com/in/dmitry-odudenko-a1a82a302?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
+[![LinkedIn Badge](https://img.shields.io/badge/-LinkedIn-0077B5?style=flat&logo=linkedin&logoColor=white)]([https://linkedin.com/in/ТВОЙ_LINKEDIN](https://www.linkedin.com/in/dmitry-odudenko-a1a82a302?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app))
 
 ---
 
